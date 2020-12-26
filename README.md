@@ -1,0 +1,1 @@
+# YunoGasai67.github.io
